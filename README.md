@@ -1,4 +1,4 @@
-## Olá bem vindo!! 😘
+## Olá bem vindo(a)!! 😘
 
 Meu nome é Mayara Santos 
 
